@@ -17,3 +17,8 @@ The kid's discord is: Curious Baby#7822
  
  My convo with him : https://paste.webud.xyz/public/tibkMWyXNK
 (hosteru') (romanian)
+
+
+UPDATE
+THE KID NOW SAID HE WILL KILL HIMSELF BECAUSE OF US!
+https://cdn.discordapp.com/attachments/604982954615111681/731512198563758130/Screenshot_2020-07-11_at_15.png
