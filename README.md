@@ -12,7 +12,7 @@ SEE YOU IN COURT BITCH (okno 9 years old cant sue anyone!)
 The kid's discord is: Curious Baby#7822
 
 
- Black Winner Yoshi here. I made a paste of this code to ~~Disroot's PrivateBin instance~~ webud paste:    https://easilypaste.xyz/public/6B6AUAzEJX
+ Black Winner Yoshi here. I made a paste of this code to ~~Disroot's PrivateBin instance~~ webud paste:    https://easilypaste.xyz/public/6B6AUAzEJX  (i replaced his link, i need to eat afterall)
  
  
  My convo with him : https://easilypaste.xyz/public/tibkMWyXNK
