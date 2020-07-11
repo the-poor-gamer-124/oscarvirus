@@ -7,3 +7,6 @@ B) absolutely no license, therefore i can even put this code in my ass, and have
 
 
 SEE YOU IN COURT BITCH (okno 9 years old cant sue anyone!)
+
+
+The kid's discord is: Curious Baby#7822
