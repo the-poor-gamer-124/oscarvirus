@@ -10,3 +10,5 @@ SEE YOU IN COURT BITCH (okno 9 years old cant sue anyone!)
 
 
 The kid's discord is: Curious Baby#7822
+
+Black Winner Yoshi here. I made a paste of this code to Disroot's PrivateBin instance: https://bin.disroot.org/?b27cec325d8834b0#6Bqi9j3HCUjjoa5Y8z5SpSNBaSEKeawUqKcSck1Vd2hk
