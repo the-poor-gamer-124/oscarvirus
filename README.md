@@ -15,7 +15,7 @@ The kid's discord is: Curious Baby#7822
  Black Winner Yoshi here. I made a paste of this code to ~~Disroot's PrivateBin instance~~ webud paste:    https://paste.webud.xyz/public/6B6AUAzEJX
  
  
- My convo with him : https://paste.webud.xyz/public/tibkMWyXNK
+ My convo with him : http://easilypaste.xyz/public/tibkMWyXNK
 (hosteru') (romanian)
 
 
