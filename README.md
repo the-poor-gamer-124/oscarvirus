@@ -33,3 +33,7 @@ https://media.discordapp.net/attachments/571750658026242069/731513944774148096/u
 https://media.discordapp.net/attachments/571750658026242069/731514010431651890/unknown.png?width=382&height=300
 
 we also told him kidding about suicide is not ok
+
+# 2022 update
+the kid's discord doesn't exist anymore, he is still alive, and most of the links you see here died
+lmfaoo this shit funny as hell and very nostalgic
