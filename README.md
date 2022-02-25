@@ -37,3 +37,4 @@ we also told him kidding about suicide is not ok
 # 2022 update
 the kid's discord doesn't exist anymore, he is still alive, and most of the links you see here died
 lmfaoo this shit funny as hell and very nostalgic
++ pls add me on Salamus#7176
